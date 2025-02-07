@@ -1,2 +1,1 @@
-# FMGMSNAAKJ04022025118561
-FMGMSNAAKJ04022025118561
+#   https://ujiberkala-dstj-dephub-go-id-qr-vi-rfid.github.io/FMGMSNAAKJ04022025118561/
